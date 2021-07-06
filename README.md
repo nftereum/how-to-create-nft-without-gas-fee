@@ -1,9 +1,20 @@
-SAFESPACE is community driven DeFi token programmed to reward holders through its frictionless yield and liquidity generation protocol
+Buy TWX token and earn weekly passive earnings in BNB                                                                                                                               
 
-6% Tax from each transaction
+Participate in a win-win BNB lottery                                                                                                                                                                                         
+Send your digital assets to Twortex Pool and receive passive income
+ 
+Buy tokens of new projects and earn crypto using Twortex Pad
 
-2% Sent to Binance Charity
+Website
+https://twortex.com/
 
-2% Redistributed to all SAFESPACE holders
+Telegram Channel
+https://t.me/twortexnews
 
-2% Burned forever
+Twitter
+https://twitter.com/Twortex1
+
+Presale
+https://twortex.com/buy-twx/
+
+Guaranteed TWX Listing on Pancake Swap August 5, 2021
